@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @nacy-ezlove
 - 👀 I’m interested in tphcm🩷
-- 🌱 I’m currently learning valo
+- 🌱 My favorite game are valorant and ff=)
 - 💞️ I'm secretly in love with mt💓
 - 📫 How to reach me fb
 - 😄 Pronouns: xàm lồn
