@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @nacy-ezlove
-- 👀 I’m interested in Vietnam 🇻🇳
-- 🌱 My favorite game are valorant and ff=)
+- 👀 I’m live in Vietnam 🇻🇳
+- 🌱 My favorite game are valorant
 - 💞️ I'm secretly in love with mt💓
-- 📫 How to reach me in hxbl:nacyyybeo
+- 📫 How to reach me ...
 - 😄 Pronouns: xàm lồn
 - ⚡ Fun fact: gay=))
 <!---
