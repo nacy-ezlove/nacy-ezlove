@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @nacy-ezlove
 - 👀 I’m interested in tphcm🩷
-- 🌱 I’m currently learning dbk
-- 💞️ I’m looking to collaborate on mt💓
-- 📫 How to reach me ...
+- 🌱 I’m currently learning valo
+- 💞️ I'm secretly in love with mt💓
+- 📫 How to reach me fb
 - 😄 Pronouns: xàm lồn
 - ⚡ Fun fact: gay=))
 <!---
