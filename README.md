@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @nacy-ezlove
-- 👀 I’m interested in tphcm🩷
+- 👀 I’m interested in Vietnam 🇻🇳
 - 🌱 My favorite game are valorant and ff=)
 - 💞️ I'm secretly in love with mt💓
-- 📫 How to reach me fb
+- 📫 How to reach me in hxbl:nacyyybeo
 - 😄 Pronouns: xàm lồn
 - ⚡ Fun fact: gay=))
 <!---
