@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @nacy-ezlove
 - 👀 I’m live in Vietnam 🇻🇳
-- 🌱 My favorite game are valorant
+- 🌱 My favorite game is valorant
 - 💞️ I'm secretly in love with mt💓
 - 📫 How to reach me ...
 - 😄 Pronouns: xàm lồn
