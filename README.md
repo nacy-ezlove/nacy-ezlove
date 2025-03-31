@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @nacy-ezlove
+- 👋 Hi, I’m @eddybear
 - 👀 I’m live in Vietnam 🇻🇳
 - 🌱 My favorite game is valorant
 - 💞️ I'm secretly in love with...💓
