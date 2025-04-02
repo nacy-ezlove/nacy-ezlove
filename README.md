@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @eddybear
 - 👀 I’m live in Vietnam 🇻🇳
-- 🌱 My favorite game is valorant
-- 💞️ I'm secretly in love with...💓
+- 🌱 My favorite game is LOL
+- 💞️ I'm secretly in love with mt💓
 - 📫 How to reach me ...
 - 😄 Pronouns: xàm lồn
 - ⚡ Fun fact: gay=))
