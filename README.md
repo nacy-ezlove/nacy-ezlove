@@ -1,11 +1,4 @@
-- 👋 Hi, I’m @eddybear
-- 👀 I’m live in Vietnam 🇻🇳
-- 🌱 My favorite game is LOL
-- 💞️ I'm secretly in love with mt💓
-- 📫 How to reach me ...
-- 😄 Pronouns: xàm lồn
-- ⚡ Fun fact: gay=))
-<!---
+a god cotire
 nacy-ezlove/nacy-ezlove is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 nblocks = nblocks ? : 1;
 
